@@ -1,1 +1,0 @@
-# jangsukim.github.io
